@@ -8,3 +8,8 @@
 
 ##Tutorial:
 All in glass and it's over !
+
+##Methodologie:
+On verse tout dans le verre et voila ! On peut mettre un glaçon si on veux aussi. Et du citron. Et du sel. Ça fais un Bronx paf.
+
+##Variante: On peux aussi tout mettre dans un.. gobelet ?
